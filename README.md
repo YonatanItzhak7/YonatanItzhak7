@@ -1,4 +1,4 @@
-[![MasterHead](https://i.pinimg.com/originals/59/bf/96/59bf96fde108d05bbaa2f096de0934d5.gif)]
+![MasterHead](https://i.pinimg.com/originals/59/bf/96/59bf96fde108d05bbaa2f096de0934d5.gif)
 
 <h1 align="center">Hello 🙌 There I'm Yonatan Itzhak 😎</h1>[![MasterHead](https://i.pinimg.com/originals/59/bf/96/59bf96fde108d05bbaa2f096de0934d5.gif)]
 
